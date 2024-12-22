@@ -2,7 +2,7 @@
 - 👀 I’m interested in Video games music and computer science
 - 🌱 I’m currently learning college core
 - 💞️ I’m looking to collaborate on (nothing atm)
-- 📫 How to reach me insta @duke_of_disastr twitter: @disastr_caster
+- 📫 How to reach me email: claytonw409@gmail.com
 
 <!---
 Duke-of-Disastr/Duke-of-Disastr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
